@@ -1,0 +1,1 @@
+# acik_kaynak_platformu
